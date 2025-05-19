@@ -7,5 +7,7 @@
 
 *_° Eu estou aprendendo a programar INDEX.HTML, GITHUB e PortugolStudio em outra matéria.*
 
-*_° Abaixo como inserer imagens.*
+*_° Abaixo imagem do que eu amo.*
+
+https://www.google.com/url?sa=i&url=https%3A%2F%2Fin.pinterest.com%2Fpin%2Fpink-aesthetic-money--12033123997229266%2F&psig=AOvVaw2bBxj0gWQxJUE-F0b7BBUz&ust=1747746714831000&source=images&cd=vfe&opi=89978449&ved=0CBQQjRxqFwoTCNjN2OrOr40DFQAAAAAdAAAAABAL
 
