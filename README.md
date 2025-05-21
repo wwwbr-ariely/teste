@@ -9,5 +9,4 @@
 
 *_°Abaixo imagem do que eu amo._*
 
-https://www.google.com/url?sa=i&url=https%3A%2F%2Fin.pinterest.com%2Fpin%2Fpink-aesthetic-money--12033123997229266%2F&psig=AOvVaw2bBxj0gWQxJUE-F0b7BBUz&ust=1747746714831000&source=images&cd=vfe&opi=89978449&ved=0CBQQjRxqFwoTCNjN2OrOr40DFQAAAAAdAAAAABAL
-
+https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.razaoautomovel.com%2Fnoticias%2Fapresentacao-lamborghini-hurcan-stj%2F&psig=AOvVaw3jjgSr-LhM9Ziv4xTxCicp&ust=1747922350813000&source=images&cd=vfe&opi=89978449&ved=0CBQQjRxqFwoTCPjCpfzctI0DFQAAAAAdAAAAABAL
