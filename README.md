@@ -10,3 +10,7 @@
 *_°Abaixo imagem do que eu amo._*
 
 https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.razaoautomovel.com%2Fnoticias%2Fapresentacao-lamborghini-hurcan-stj%2F&psig=AOvVaw3jjgSr-LhM9Ziv4xTxCicp&ust=1747922350813000&source=images&cd=vfe&opi=89978449&ved=0CBQQjRxqFwoTCPjCpfzctI0DFQAAAAAdAAAAABAL
+
+https://img.shields.io/badge/WhatsApp-25D366?style=for-the-badge&logo=whatsapp&logoColor=white
+
+🥅 Trabalho/Empregos
