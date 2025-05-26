@@ -29,6 +29,9 @@ https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.razaoautomovel.com%2Fnotic
 
 ![ ](https://img.shields.io/badge/WhatsApp-25D366?style=for-the-badge&logo=whatsapp&logoColor=white.) 🔕
 
+![FielFielTorcidaGIF](https://github.com/user-attachments/assets/0e4fbe4d-0d69-437b-b26e-fe58d935967a)
+
+
 
 
 
